@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a simple level with people who might have the patience I may need.
 - 📫 How to reach me - my email is kenflini@gmail.com and my cell is 404-922-0555
 - 😄 Pronouns: He, him, his....
-- ⚡ Fun fact: I'm like the guy who grew up watching aviation histor - I started with technology with IBM's Accounting Machines, then the 1401 and 360 line. Play catchup until I retired, circa G
+- ⚡ Fun fact: I'm like the guy who grew up watching aviation histor - I started with technology with IBM's Accounting Machines, then the 1401 and 360 line. Played catchup until I retired, circa G
 PRS protocols. 
 
 <!---
